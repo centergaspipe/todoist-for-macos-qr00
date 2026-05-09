@@ -1,4 +1,4 @@
-
+secure Todoist for macOS Plugin | voice notes + quick search offers the most advanced Todoist for macOS plugin, with voice notes and quick search. Ideal for professionals.
 
 
 
